@@ -24,8 +24,8 @@ Pilar Beltrán Chivite
 ![imagen](https://github.com/user-attachments/assets/e87df24d-9728-4278-abe0-0bbaa02e2950)
 
 ## 📞Datos de contacto
-Email: 
-Número:
+Email: ejemplo@ejemplo.com  
+Número: número de ejemplo
 
 ## Apartado de memes
 ![Imagen de WhatsApp 2024-09-28 a las 00 38 11_4e71c554](https://github.com/user-attachments/assets/5bcaac24-0e5e-418c-aee0-9aba30754101)
