@@ -8,7 +8,7 @@ Pilar Beltrán Chivite
 ## 📚 Mi trayectoria
 ### 📍Experiencia
 * Niñera 🍼 🚼 
-  * Me encargo de proporcionar una atencióin básica a bebés y niños pequeños, que incluye cambiar pañales y ropa, preparar comida y asegurarme de su seguridad y bienestar.
+  * Me encargo de proporcionar una atención básica a bebés y niños pequeños, que incluye cambiar pañales y ropa, preparar comida y asegurarme de su seguridad y bienestar.
 * Paseadora de perros 🐶🐕
   * Soy la responsable de pasear y cuidar a mascotas. Esto incluye su recogida y vuelta a casa de los perros, asegurar su seguridad durante los paseos y proporcionar ejercicio y tiempo de juego.
 
